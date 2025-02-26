@@ -1,5 +1,4 @@
-![thumb-1920-1315107](https://github.com/user-attachments/assets/deabee62-7f39-4393-a852-2b2ad85bbfa9)
-
+![wp8963451](https://github.com/user-attachments/assets/805d6017-61fc-4bc8-a0cc-c067ceb3bd1e)
 ## Hi there 👋
 <!--
 **DeyannK/DeyannK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
