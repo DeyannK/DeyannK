@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/f1ac7fcf-d822-463e-9ae4-8d1a1a47ebaf)
+![Uploading image.png…]()
 
 ## Hi there 👋
 <!--
