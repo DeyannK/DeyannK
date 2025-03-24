@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/4915d6e2-32a8-4c0e-8b9a-8bbae7de5b4a)
+![DSC09146](https://github.com/user-attachments/assets/6554eb3c-326b-4f6d-86c8-bdcbf46f3383)
+
 
 ## Hi there 👋
 <!--
